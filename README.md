@@ -1,0 +1,2 @@
+# premium-midland-001-midland-style-hedge-laying-pro
+Tired of losing track of which pleachers you've laid and when? The Midland Style Hedge Laying Progress Record is your digital field notebook, designed to capture every detail of your hedge's journey from raw growth to a beautifully laid living fence.  This template solves the chaos of scattered notes and forgotten history by providing a structured
